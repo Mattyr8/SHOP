@@ -1,0 +1,1 @@
+Shopift Equity Research Report
